@@ -2,6 +2,8 @@
 
 Let's make it big!  🌈
 
+Target Customers🧙 in August!!! 
+
 <!--
 
 **Here are some ideas to get you started:**
